@@ -1,4 +1,4 @@
-#PROBABILIDAD
+PROBABILIDAD
 
 Mapa Conceptual
 
