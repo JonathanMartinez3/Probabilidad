@@ -10,7 +10,8 @@ Grupo 425-81
 
 Universidad Distrital Francisco Jose de Caldas
 
-Pagina principal: https://
-PROBABILIDAD-JEMM
-.mystrikingly.com
+Pagina principal: 
+https://PROBABILIDAD-JEMM.mystrikingly.com
 
+Mapa conceptual:
+https://jonathanmartinez3.github.io/Probabilidad/
