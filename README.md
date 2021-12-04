@@ -9,3 +9,8 @@ Jonathan Estiben Martinez Malaver
 Grupo 425-81
 
 Universidad Distrital Francisco Jose de Caldas
+
+Pagina principal: https://
+PROBABILIDAD-JEMM
+.mystrikingly.com
+
